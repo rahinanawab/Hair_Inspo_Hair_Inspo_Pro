@@ -60,6 +60,10 @@ Download **Inspo Hair** from the App Store:
 
 🍎 **App Store:** https://apps.apple.com/us/app/inspo-hair/id6740243681
 
+Download **Inspo Hair** from the Play Store:
+
+▶️ **Play Store:** https://play.google.com/store/apps/details?id=com.cmolds.inspohairapp
+
 ---
 
 > **"Find your perfect look with AI-powered hair transformations." 💇✨
